@@ -1,0 +1,5 @@
+![image](https://github.com/Parv-s/5-programs/assets/146922256/6c96db6b-590d-4da3-9ea7-d7c7a260654e)
+![image](https://github.com/Parv-s/5-programs/assets/146922256/6957c8d9-a77b-4855-b4db-517aa9645806)
+![image](https://github.com/Parv-s/5-programs/assets/146922256/bc8449cf-ba73-4d03-927d-905f8e4babfe)
+![image](https://github.com/Parv-s/5-programs/assets/146922256/aef05b29-8030-4cf6-b9f8-b3f6483b3e30)
+![image](https://github.com/Parv-s/5-programs/assets/146922256/79cf7f97-2cef-41cd-a665-3686d864af2b)
